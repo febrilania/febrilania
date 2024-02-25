@@ -5,6 +5,8 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=febrilania&label=Profile%20views&color=0e75b6&style=flat" alt="febrilania" /> </p>
 
 - 📫 How to reach me **febrilanianurislami@gmail.com**
+- My Instagram **@ubing_13**
+- LinkedIn **www.linkedin.com/in/febrilania-nur-islami**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
